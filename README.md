@@ -2,4 +2,4 @@
 
 im here ola!
 Studyingg 
-hard
+very as much
